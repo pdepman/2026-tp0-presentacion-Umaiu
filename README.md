@@ -11,7 +11,7 @@ trabajo como Data Entry desde hace un par de años.
 
 - Hace un año que estudio japones y me estoy preparando para rendir los examenes internacionales, en un futuro me gustaria tambien aprender chino.
 
-- Me gusta dibujar aunque no me considero muy buena en ello
+- Me gusta dibujar aunque no me considero muy buena en ello.
 
-- En mi tiempo libre veo animes, mi favorito es One Piece
+- En mi tiempo libre veo animes, mi favorito es One Piece.
 </p>
