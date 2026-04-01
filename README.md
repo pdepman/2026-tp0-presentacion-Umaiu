@@ -1,7 +1,6 @@
 # Presentacion
 
 Me llamo Umai Luz Echaniz, legajo 208.968-3. Tengo 22 años y curso materias de 2do y 3er año de Ingenieria en Sistemas,
-
 trabajo como Data Entry desde hace un par de años.
 
 <p align="center">
